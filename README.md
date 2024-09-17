@@ -21,4 +21,8 @@ https://careers.jpmorgan.com/us/en/students/programs/software-engineer-summer
 https://careers.jpmorgan.com/us/en/students/programs/cl-summer-analyst    
 https://careers.jpmorgan.com/us/en/students/programs/cl-summer-associate    
 https://careers.jpmorgan.com/us/en/students/programs/oap-summer-analyst    
-https://careers.jpmorgan.com/us/en/students/programs/research-technologies-summer-associate-program   
+https://careers.jpmorgan.com/us/en/students/programs/research-technologies-summer-associate-program     
+https://apply.deloitte.com/careers/JobDetail/Deloitte-Risk-Financial-Advisory-Analyst-Technology-Risk-Advisory-and-Assurance-Summer-Fall-2025-Winter-2026/189880    
+https://apply.deloitte.com/careers/JobDetail/Deloitte-Risk-Financial-Advisory-Intern-Technology-Risk-Advisory-and-Assurance-Summer-2025/190567     
+
+
