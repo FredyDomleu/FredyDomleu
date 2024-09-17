@@ -15,7 +15,7 @@ You can click the Preview link to take a look at your changes.
 # summer internship 2025
 
 https://jobs.statefarm.com/main/jobs/38581?lang=en-us       
-https://jobs.statefarm.com/main/jobs/38082?lang=en-us
+https://jobs.statefarm.com/main/jobs/38082?lang=en-us   
 https://careers.jpmorgan.com/us/en/students/programs/cadp-summer-analyst       
 https://careers.jpmorgan.com/us/en/students/programs/software-engineer-summer    
 https://careers.jpmorgan.com/us/en/students/programs/cl-summer-analyst    
