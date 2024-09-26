@@ -27,7 +27,10 @@ https://apply.deloitte.com/careers/JobDetail/Deloitte-Risk-Financial-Advisory-In
 https://careers.gulfstream.com/job/Savannah-Summer-2025-Interior-Design-Intern-GA-31401/1203020500/     
 https://careers.gulfstream.com/job/Savannah-Spring-2025-Interior-Design-Intern-GA-31401/1203004000/        
 https://www.capco.com/Careers/Job%20Search/Office%20Detail?gh_jid=6181836&location=45177c04d8104de2a569e08218d2ad16&department=&keywords=software    
-https://careers.thrivent.com/jobs/40181/software-developer-intern-summer-2025/
+https://careers.thrivent.com/jobs/40181/software-developer-intern-summer-2025/      
+https://www.capco.com/Careers/Job%20Search/Office%20Detail?gh_jid=6181836&location=45177c04d8104de2a569e08218d2ad16&department=&keywords=     
+https://www.capco.com/Careers/Job%20Search/Office%20Detail?gh_jid=6181836&location=45177c04d8104de2a569e08218d2ad16&department=&keywords=    
+https://www.capco.com/Careers/Job%20Search/Office%20Detail?gh_jid=6204351&location=45177c04d8104de2a569e08218d2ad16&department=&keywords=
 
 
 
