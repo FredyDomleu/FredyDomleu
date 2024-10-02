@@ -31,7 +31,8 @@ https://careers.thrivent.com/jobs/40181/software-developer-intern-summer-2025/
 https://www.capco.com/Careers/Job%20Search/Office%20Detail?gh_jid=6181836&location=45177c04d8104de2a569e08218d2ad16&department=&keywords=     
 https://www.capco.com/Careers/Job%20Search/Office%20Detail?gh_jid=6181836&location=45177c04d8104de2a569e08218d2ad16&department=&keywords=    
 https://www.capco.com/Careers/Job%20Search/Office%20Detail?gh_jid=6204351&location=45177c04d8104de2a569e08218d2ad16&department=&keywords=     
-https://kemper.wd5.myworkdayjobs.com/en-US/Kemper_Careers/job/IT-Business-Systems-Intern_R-24-0027716     
+https://kemper.wd5.myworkdayjobs.com/en-US/Kemper_Careers/job/IT-Business-Systems-Intern_R-24-0027716         
+https://www.pepsicojobs.com/main/jobs/315338?lang=en-us&previousLocale=en-US
 
 
 
