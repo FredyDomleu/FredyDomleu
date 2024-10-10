@@ -34,7 +34,8 @@ https://www.capco.com/Careers/Job%20Search/Office%20Detail?gh_jid=6204351&locati
 https://kemper.wd5.myworkdayjobs.com/en-US/Kemper_Careers/job/IT-Business-Systems-Intern_R-24-0027716         
 https://www.pepsicojobs.com/main/jobs/315338?lang=en-us&previousLocale=en-US                      
 https://www.pepsicojobs.com/main/jobs/315340?lang=en-us&previousLocale=en-US            
-https://www.pepsicojobs.com/main/jobs/315337?lang=en-us&previousLocale=en-US                   
+https://www.pepsicojobs.com/main/jobs/315337?lang=en-us&previousLocale=en-US           
+https://www.wayup.com/i-Financial-Services-j-2025-Spring-Intern-Program-Data-Engineer-Intern-Onsite-DFW-Mr-Cooper-291911323185244/
 
 
 
