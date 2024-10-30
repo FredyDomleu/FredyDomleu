@@ -35,7 +35,8 @@ https://kemper.wd5.myworkdayjobs.com/en-US/Kemper_Careers/job/IT-Business-System
 https://www.pepsicojobs.com/main/jobs/315338?lang=en-us&previousLocale=en-US                      
 https://www.pepsicojobs.com/main/jobs/315340?lang=en-us&previousLocale=en-US            
 https://www.pepsicojobs.com/main/jobs/315337?lang=en-us&previousLocale=en-US           
-https://www.wayup.com/i-Financial-Services-j-2025-Spring-Intern-Program-Data-Engineer-Intern-Onsite-DFW-Mr-Cooper-291911323185244/
+https://www.wayup.com/i-Financial-Services-j-2025-Spring-Intern-Program-Data-Engineer-Intern-Onsite-DFW-Mr-Cooper-291911323185244/    
+https://jobs.ericsson.com/careers?pid=563121760626746&location=Dallas%2C%20TX&recommended=1
 
 
 
