@@ -23,7 +23,13 @@ https://talent.lowes.com/us/en/job/JR-02251155/Retail-Sales-Part-Time
 https://jobs.cvshealth.com/us/en/job/R0506606/Stocker                             
 https://jobs.cvshealth.com/us/en/job/R0506614/Order-Selector                           
 https://jobs.cvshealth.com/us/en/job/R0547725/Fulfillment-Packaging-Assistant              
-https://jobs.cvshealth.com/us/en/job/R0506621/Loader
+https://jobs.cvshealth.com/us/en/job/R0506621/Loader               
+https://jobs.grainger.com/ImperialSupplies/job/ARLINGTON-Material-Handler-I-TX-76018/1328967700/                        
+https://jobs.grainger.com/job/ROANOKE-Warehouse-Associate-%28Nights%29-TX-76262-3320/1329617000/                                             
+https://jobs.grainger.com/job/DALLAS-On-Site-Service-Representative-TX-75237-1618/1330510500/                          
+https://bradyplus.avature.net/careersmarketplace/JobDetail/Arlington-Texas-United-States-Warehouse-Associate/1765                             
+https://bradyplus.avature.net/careersmarketplace/JobDetail/Grand-Prairie-Texas-United-States-Warehouse-Coordinator/1041              
+https://jobs.grainger.com/job/ROANOKE-Warehouse-Associate-%28Days%29-TX-76262-3320/1329616900/
 
 
 
