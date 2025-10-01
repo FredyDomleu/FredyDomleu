@@ -10,7 +10,7 @@
 FredyDomleu/FredyDomleu is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
-# Intership 2026
+# Internship 2026
 
 
 # summer internship 2025
