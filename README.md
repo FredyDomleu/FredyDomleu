@@ -12,6 +12,12 @@ You can click the Preview link to take a look at your changes.
 --->
 # Internship 2026
 
+https://geico.wd1.myworkdayjobs.com/en-US/External/job/Chicago-IL/Campus-Recruiter_R0060055?q=internship
+https://geico.wd1.myworkdayjobs.com/en-US/External/job/Chevy-Chase-MD/Analyst-Internship-Program---Pricing-Track--CFO-Org-_R0059674?q=internship
+https://geico.wd1.myworkdayjobs.com/en-US/External/job/Chevy-Chase-MD/Analyst-Internship--Controllers--CFO-Organization-_R0059717?q=internship
+https://geico.wd1.myworkdayjobs.com/en-US/External/job/Chevy-Chase-MD/Analyst-Internship-Program---Finance---Operations-Track--CFO-Org-_R0059703?q=internship
+https://geico.wd1.myworkdayjobs.com/en-US/External/job/Chevy-Chase-MD/Analyst-Development-Program---Pricing-Rotational-Track--CFO-Org-_R0059529?q=internship
+
 
 # summer internship 2025
 
