@@ -30,7 +30,10 @@ https://jobs.grainger.com/job/DALLAS-On-Site-Service-Representative-TX-75237-161
 https://bradyplus.avature.net/careersmarketplace/JobDetail/Arlington-Texas-United-States-Warehouse-Associate/1765                             
 https://bradyplus.avature.net/careersmarketplace/JobDetail/Grand-Prairie-Texas-United-States-Warehouse-Coordinator/1041              
 https://jobs.grainger.com/job/ROANOKE-Warehouse-Associate-%28Days%29-TX-76262-3320/1329616900/
-
+https://jobs.centene.com/us/en/jobs/1593802/cloud-machine-learning-engineer-intern-graduate-summer-2026/                     
+https://jobs.centene.com/us/en/jobs/1593826/business-systems-analyst-intern-undergraduate-summer/                   
+https://jobs.centene.com/us/en/jobs/1593841/data-governance-intern-undergraduate-summer/                             
+https://jobs.centene.com/us/en/jobs/1602551/business-analyst-ii-timekeeping/                                         
 
 
 # Internship 2026
