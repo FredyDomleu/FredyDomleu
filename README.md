@@ -30,10 +30,7 @@ https://jobs.grainger.com/job/DALLAS-On-Site-Service-Representative-TX-75237-161
 https://bradyplus.avature.net/careersmarketplace/JobDetail/Arlington-Texas-United-States-Warehouse-Associate/1765                             
 https://bradyplus.avature.net/careersmarketplace/JobDetail/Grand-Prairie-Texas-United-States-Warehouse-Coordinator/1041              
 https://jobs.grainger.com/job/ROANOKE-Warehouse-Associate-%28Days%29-TX-76262-3320/1329616900/
-https://jobs.centene.com/us/en/jobs/1593802/cloud-machine-learning-engineer-intern-graduate-summer-2026/                     
-https://jobs.centene.com/us/en/jobs/1593826/business-systems-analyst-intern-undergraduate-summer/                   
-https://jobs.centene.com/us/en/jobs/1593841/data-governance-intern-undergraduate-summer/                             
-https://jobs.centene.com/us/en/jobs/1602551/business-analyst-ii-timekeeping/                                         
+                                    
 
 
 # Internship 2026
@@ -44,6 +41,10 @@ https://geico.wd1.myworkdayjobs.com/en-US/External/job/Chevy-Chase-MD/Analyst-In
 https://geico.wd1.myworkdayjobs.com/en-US/External/job/Chevy-Chase-MD/Analyst-Internship-Program---Finance---Operations-Track--CFO-Org-_R0059703?q=internship    
 https://geico.wd1.myworkdayjobs.com/en-US/External/job/Chevy-Chase-MD/Analyst-Development-Program---Pricing-Rotational-Track--CFO-Org-_R0059529?q=internship         
 https://www.uline.jobs/JobDetails?culture=en&jobid=R256054&jobtitle=Warehouse-Management-Internship---Summer-2026          
+https://jobs.centene.com/us/en/jobs/1593802/cloud-machine-learning-engineer-intern-graduate-summer-2026/                                       
+https://jobs.centene.com/us/en/jobs/1593826/business-systems-analyst-intern-undergraduate-summer/                                           
+https://jobs.centene.com/us/en/jobs/1593841/data-governance-intern-undergraduate-summer/                             
+https://jobs.centene.com/us/en/jobs/1602551/business-analyst-ii-timekeeping/             
 
 
 # summer internship 2025
