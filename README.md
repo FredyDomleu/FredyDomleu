@@ -10,6 +10,18 @@
 FredyDomleu/FredyDomleu is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+# Warehouse in DFW
+
+https://www.uline.jobs/JobDetails?culture=en&jobid=R257950&jobtitle=Warehouse-Associate          
+https://www.uline.jobs/JobDetails?culture=en&jobid=R257885&jobtitle=Fulfillment-Specialist              
+https://careers.walmart.com/us/jobs/053121783SU-stocking-unloading                       
+https://careers.homedepot.com/job/6960637/store-support-onsite               
+https://careers.homedepot.com/job/6960638/freight-receiving-onsite        
+https://careers.homedepot.com/job/7149152/lot-associate-onsite           
+https://talent.lowes.com/us/en/job/JR-02269256/Full-Time-Sales-Associate-Tools-Opening          
+https://talent.lowes.com/us/en/job/JR-02251155/Retail-Sales-Part-Time
+
+
 # Internship 2026
 
 https://geico.wd1.myworkdayjobs.com/en-US/External/job/Chicago-IL/Campus-Recruiter_R0060055?q=internship
