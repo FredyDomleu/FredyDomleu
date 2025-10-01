@@ -16,7 +16,8 @@ https://geico.wd1.myworkdayjobs.com/en-US/External/job/Chicago-IL/Campus-Recruit
 https://geico.wd1.myworkdayjobs.com/en-US/External/job/Chevy-Chase-MD/Analyst-Internship-Program---Pricing-Track--CFO-Org-_R0059674?q=internship     
 https://geico.wd1.myworkdayjobs.com/en-US/External/job/Chevy-Chase-MD/Analyst-Internship--Controllers--CFO-Organization-_R0059717?q=internship     
 https://geico.wd1.myworkdayjobs.com/en-US/External/job/Chevy-Chase-MD/Analyst-Internship-Program---Finance---Operations-Track--CFO-Org-_R0059703?q=internship    
-https://geico.wd1.myworkdayjobs.com/en-US/External/job/Chevy-Chase-MD/Analyst-Development-Program---Pricing-Rotational-Track--CFO-Org-_R0059529?q=internship      
+https://geico.wd1.myworkdayjobs.com/en-US/External/job/Chevy-Chase-MD/Analyst-Development-Program---Pricing-Rotational-Track--CFO-Org-_R0059529?q=internship         
+https://www.uline.jobs/JobDetails?culture=en&jobid=R256054&jobtitle=Warehouse-Management-Internship---Summer-2026          
 
 
 # summer internship 2025
