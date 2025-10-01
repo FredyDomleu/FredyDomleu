@@ -19,7 +19,12 @@ https://careers.homedepot.com/job/6960637/store-support-onsite
 https://careers.homedepot.com/job/6960638/freight-receiving-onsite        
 https://careers.homedepot.com/job/7149152/lot-associate-onsite           
 https://talent.lowes.com/us/en/job/JR-02269256/Full-Time-Sales-Associate-Tools-Opening          
-https://talent.lowes.com/us/en/job/JR-02251155/Retail-Sales-Part-Time
+https://talent.lowes.com/us/en/job/JR-02251155/Retail-Sales-Part-Time         
+https://jobs.cvshealth.com/us/en/job/R0506606/Stocker                             
+https://jobs.cvshealth.com/us/en/job/R0506614/Order-Selector                           
+https://jobs.cvshealth.com/us/en/job/R0547725/Fulfillment-Packaging-Assistant              
+https://jobs.cvshealth.com/us/en/job/R0506621/Loader
+
 
 
 # Internship 2026
