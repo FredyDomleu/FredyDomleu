@@ -45,7 +45,10 @@ https://jobs.centene.com/us/en/jobs/1593802/cloud-machine-learning-engineer-inte
 https://jobs.centene.com/us/en/jobs/1593826/business-systems-analyst-intern-undergraduate-summer/                                           
 https://jobs.centene.com/us/en/jobs/1593841/data-governance-intern-undergraduate-summer/                             
 https://jobs.centene.com/us/en/jobs/1602551/business-analyst-ii-timekeeping/        
-http://careers.aflac.com/job/Remote-Social-Worker-31999/1336863700/?from=email&refid=30648989000&utm_source=J2WEmail&source=2&eid=181700-202519280819-34320169900&locale=en_US
+http://careers.aflac.com/job/Remote-Social-Worker-31999/1336863700/?from=email&refid=30648989000&utm_source=J2WEmail&source=2&eid=181700-202519280819-34320169900&locale=en_US       
+https://careers.aflac.com/job/2026-Actuary-Intern-GA/1320690600/         
+https://careers.aflac.com/job/2026-Summer-Aflac-Corporate-Intern-GA/1320690100/                    
+
 
 
 # summer internship 2025
