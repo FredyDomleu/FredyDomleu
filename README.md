@@ -44,7 +44,8 @@ https://www.uline.jobs/JobDetails?culture=en&jobid=R256054&jobtitle=Warehouse-Ma
 https://jobs.centene.com/us/en/jobs/1593802/cloud-machine-learning-engineer-intern-graduate-summer-2026/                                       
 https://jobs.centene.com/us/en/jobs/1593826/business-systems-analyst-intern-undergraduate-summer/                                           
 https://jobs.centene.com/us/en/jobs/1593841/data-governance-intern-undergraduate-summer/                             
-https://jobs.centene.com/us/en/jobs/1602551/business-analyst-ii-timekeeping/             
+https://jobs.centene.com/us/en/jobs/1602551/business-analyst-ii-timekeeping/        
+http://careers.aflac.com/job/Remote-Social-Worker-31999/1336863700/?from=email&refid=30648989000&utm_source=J2WEmail&source=2&eid=181700-202519280819-34320169900&locale=en_US
 
 
 # summer internship 2025
