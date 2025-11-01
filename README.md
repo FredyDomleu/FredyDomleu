@@ -47,7 +47,17 @@ https://jobs.centene.com/us/en/jobs/1593841/data-governance-intern-undergraduate
 https://jobs.centene.com/us/en/jobs/1602551/business-analyst-ii-timekeeping/        
 http://careers.aflac.com/job/Remote-Social-Worker-31999/1336863700/?from=email&refid=30648989000&utm_source=J2WEmail&source=2&eid=181700-202519280819-34320169900&locale=en_US       
 https://careers.aflac.com/job/2026-Actuary-Intern-GA/1320690600/         
-https://careers.aflac.com/job/2026-Summer-Aflac-Corporate-Intern-GA/1320690100/                    
+https://careers.aflac.com/job/2026-Summer-Aflac-Corporate-Intern-GA/1320690100/       
+https://snc.wd1.myworkdayjobs.com/en-US/SNC_External_Career_Site/details/Data-Science-Intern---Summer-2026_R0028597/apply?workerSubType=bd3f3405ddee105b4243e938c45a16d5       
+https://snc.wd1.myworkdayjobs.com/en-US/SNC_External_Career_Site/job/Hagerstown-MD/Project-Engineer-Intern---Summer-2026_R0028263?workerSubType=bd3f3405ddee105b4243e938c45a16d5          
+https://snc.wd1.myworkdayjobs.com/en-US/SNC_External_Career_Site/job/Hagerstown-MD/Quality-Engineer-Intern---Summer-2026_R0028253?workerSubType=bd3f3405ddee105b4243e938c45a16d5                       
+https://snc.wd1.myworkdayjobs.com/en-US/SNC_External_Career_Site/job/Lone-Tree-CO/Business-Intelligence-Developer-I_R0028503?workerSubType=bd3f3405ddee105b4243e938c45a16d5                     
+https://snc.wd1.myworkdayjobs.com/en-US/SNC_External_Career_Site/details/Software-Engineer-Intern---Summer-2026_R0028272/apply?workerSubType=bd3f3405ddee105b4243e938c45a16d5                          
+https://snc.wd1.myworkdayjobs.com/en-US/SNC_External_Career_Site/job/Sparks-NV/Financial-Planning-Analyst-Intern---Summer-2026_R0028225?workerSubType=bd3f3405ddee105b4243e938c45a16d5                     
+https://snc.wd1.myworkdayjobs.com/en-US/SNC_External_Career_Site/job/Herndon-VA/Computer-Software-Engineer-Intern---Summer-2026_R0028331?workerSubType=bd3f3405ddee105b4243e938c45a16d5                     
+https://snc.wd1.myworkdayjobs.com/en-US/SNC_External_Career_Site/job/Sparks-NV/Software-Engineer-Intern---Summer-2026_R0028381?workerSubType=bd3f3405ddee105b4243e938c45a16d5                          
+https://snc.wd1.myworkdayjobs.com/en-US/SNC_External_Career_Site/job/Lone-Tree-CO/Data-Scientist-Intern---Summer-2026_R0028396?workerSubType=bd3f3405ddee105b4243e938c45a16d5                         
+https://snc.wd1.myworkdayjobs.com/en-US/SNC_External_Career_Site/job/Hagerstown-MD/Systems-Engineer-Intern---Summer-2026_R0028382?workerSubType=bd3f3405ddee105b4243e938c45a16d5                           
 
 
 
