@@ -59,7 +59,8 @@ https://snc.wd1.myworkdayjobs.com/en-US/SNC_External_Career_Site/job/Sparks-NV/S
 https://snc.wd1.myworkdayjobs.com/en-US/SNC_External_Career_Site/job/Lone-Tree-CO/Data-Scientist-Intern---Summer-2026_R0028396?workerSubType=bd3f3405ddee105b4243e938c45a16d5                         
 https://snc.wd1.myworkdayjobs.com/en-US/SNC_External_Career_Site/job/Hagerstown-MD/Systems-Engineer-Intern---Summer-2026_R0028382?workerSubType=bd3f3405ddee105b4243e938c45a16d5         
 https://uscareers-idemia.icims.com/jobs/8325/it-business-operations-and-leadership-internship---summer-2026/job?in_iframe=1                                 
-https://uscareers-idemia.icims.com/jobs/8246/business-analyst-internship---summer-2026/job?in_iframe=1                      
+https://uscareers-idemia.icims.com/jobs/8246/business-analyst-internship---summer-2026/job?in_iframe=1                  
+https://jobs.citi.com/job/irving/technology-cyber-security-full-time-analyst-irving-usa-2026/287/88527928880
 
 
 
