@@ -11,9 +11,9 @@ FredyDomleu/FredyDomleu is a ✨ special ✨ repository because its `README.md` 
 You can click the Preview link to take a look at your changes.
 --->
 
-# Internship 2027
-#computer
-https://talent.wellsfargojobs.com/flows/early-careers-talent-community-twnilya2k?_gl=1*a96i5f*_ga*NDUyODQ4NDg0LjE3ODU4MTMyMjM.*_ga_GKTG770TLS*czE3ODU4MTMyMjMkbzEkZzEkdDE3ODU4MTMyNzYkajckbDAkaDA.
+# Internship 2027      
+#computer     
+https://talent.wellsfargojobs.com/flows/early-careers-talent-community-twnilya2k?_gl=1*a96i5f*_ga*NDUyODQ4NDg0LjE3ODU4MTMyMjM.*_ga_GKTG770TLS*czE3ODU4MTMyMjMkbzEkZzEkdDE3ODU4MTMyNzYkajckbDAkaDA.   
 https://amazon.jobs/en/jobs/10398060/data-scientist-i-fma    
 https://amazon.jobs/en/jobs/10490830/data-engineer-i-veritas-security-tools-foundation   
 https://www.vyrian.com/internship-opportunities     
