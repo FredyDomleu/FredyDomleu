@@ -10,6 +10,20 @@
 FredyDomleu/FredyDomleu is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+
+# Internship 2027
+#computer
+https://talent.wellsfargojobs.com/flows/early-careers-talent-community-twnilya2k?_gl=1*a96i5f*_ga*NDUyODQ4NDg0LjE3ODU4MTMyMjM.*_ga_GKTG770TLS*czE3ODU4MTMyMjMkbzEkZzEkdDE3ODU4MTMyNzYkajckbDAkaDA.
+https://amazon.jobs/en/jobs/10398060/data-scientist-i-fma    
+https://amazon.jobs/en/jobs/10490830/data-engineer-i-veritas-security-tools-foundation   
+https://www.vyrian.com/internship-opportunities     
+https://jobs.cmc.com/job/Irving-AI-Intern-Recycling-TX-75039/1410297800/        
+https://careers.ti.com/en/sites/CX/job/25008815/?lastSelectedFacet=AttributeChar8&selectedCategoriesFacet=300000068853972%253B300000068853892&selectedFlexFieldsFacets=%2522AttributeChar8%257CRecent+College+Grads%253BInterns%2522&selectedWorkLocationsFacet=300000068944502         
+
+
+
+#warehouse Fayetteville 
+
 # Warehouse in DFW
 
 https://www.uline.jobs/JobDetails?culture=en&jobid=R257950&jobtitle=Warehouse-Associate          
