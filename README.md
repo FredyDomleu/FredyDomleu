@@ -22,7 +22,12 @@ https://careers.ti.com/en/sites/CX/job/25008815/?lastSelectedFacet=AttributeChar
 
 
 
-#warehouse Fayetteville 
+#warehouse Fayetteville  2026     
+https://www.voltageenergy.com/careers     
+https://recruiting.paylocity.com/Recruiting/Jobs/Apply/4343791      
+https://recruiting.paylocity.com/Recruiting/Jobs/Apply/4265694       
+https://recruiting.paylocity.com/Recruiting/Jobs/Apply/4347644
+
 
 # Warehouse in DFW
 
