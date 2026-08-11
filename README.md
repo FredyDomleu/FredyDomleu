@@ -18,7 +18,13 @@ https://amazon.jobs/en/jobs/10398060/data-scientist-i-fma
 https://amazon.jobs/en/jobs/10490830/data-engineer-i-veritas-security-tools-foundation   
 https://www.vyrian.com/internship-opportunities     
 https://jobs.cmc.com/job/Irving-AI-Intern-Recycling-TX-75039/1410297800/        
-https://careers.ti.com/en/sites/CX/job/25008815/?lastSelectedFacet=AttributeChar8&selectedCategoriesFacet=300000068853972%253B300000068853892&selectedFlexFieldsFacets=%2522AttributeChar8%257CRecent+College+Grads%253BInterns%2522&selectedWorkLocationsFacet=300000068944502         
+https://careers.ti.com/en/sites/CX/job/25008815/?lastSelectedFacet=AttributeChar8&selectedCategoriesFacet=300000068853972%253B300000068853892&selectedFlexFieldsFacets=%2522AttributeChar8%257CRecent+College+Grads%253BInterns%2522&selectedWorkLocationsFacet=300000068944502   
+https://morganstanley.tal.net/vx/candidate/so/pm/1/pl/1/opp/20855           
+https://morganstanley.tal.net/vx/candidate/so/pm/1/pl/1/opp/20958               
+https://morganstanley.tal.net/vx/candidate/so/pm/1/pl/1/opp/20856             
+https://morganstanley.tal.net/vx/candidate/so/pm/1/pl/1/opp/20953                                  
+https://morganstanley.tal.net/vx/candidate/so/pm/1/pl/1/opp/20965                                
+https://morganstanley.tal.net/vx/candidate/so/pm/1/pl/1/opp/20964           
 
 
 
