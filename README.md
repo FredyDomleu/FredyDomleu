@@ -46,7 +46,8 @@ https://careers.ibm.com/en_US/careers/JobDetail?jobId=132434&source=WEB_Search_N
 https://careers.ibm.com/en_US/careers/JobDetail?jobId=132776&source=WEB_Search_NA                                   
 https://careers.ibm.com/en_US/careers/JobDetail?jobId=132431&source=WEB_Search_NA                                            
 https://careers.ibm.com/en_US/careers/JobDetail?jobId=132806&source=WEB_Search_NA                  
-https://db.recsolu.com/external/requisitions/SQwx6bgi807TVsg6v9Psog                                
+https://db.recsolu.com/external/requisitions/SQwx6bgi807TVsg6v9Psog                       
+https://db.recsolu.com/external/requisitions/ETGZI4z2L5qr_QzQNJC8KQ                
 
 
 
